@@ -14,4 +14,4 @@ https://t.me/FixxelEnc
 
 https://t.me/FIXXELPROD
 
-https://Liveforfixxel
+https://t.me/LiVEFORFiXXEL
